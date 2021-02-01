@@ -22,6 +22,18 @@ Description.
 ## Lyrics
 
 ```
+oh noo nooo
+
+isolate your fears inna jail of the mind 
+i'm insane, inmate of my dread, feeling just fine
+make it sane, my belief is in vain
+
+make it sane my belief in vain
+in the past what was done was the pain
+of it all it would last
+
+
+
 
 
 ```
