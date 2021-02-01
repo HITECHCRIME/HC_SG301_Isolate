@@ -34,8 +34,20 @@ of it all it would last audible
 took a single approach 
 on a vicious reproach ey
 
+i've been jaded asset no pain's enough 
+it's not pain to all my friends
+all thought i'm nuts, not doing right
+i got turned into the night of nights eyyy
 
-
+all my favourite times my friends were done
+i paid the price, it was fair
+shame is lies, i made it far
+i'm sure i need no break yeah
+i wanna play
+i wanna play
+i've been a phase
+i've been away 
+i've been away yeah
 
 
 ```
