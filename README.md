@@ -37,7 +37,9 @@ on a vicious reproach ey
 i've been jaded asset no pain's enough 
 it's not pain to all my friends
 all thought i'm nuts, not doing right
-i got turned into the night of nights eyyy
+i got turned for the bright of nights eyyy
+
+let's do it
 
 all my favourite times my friends were done
 i paid the price, it was fair
